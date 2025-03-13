@@ -1,3 +1,2 @@
 # Frontend_Assignments
 Frontend Challenges
-frbpiukng'ierngi'oneidbpuiqwbdfcj;dioj
